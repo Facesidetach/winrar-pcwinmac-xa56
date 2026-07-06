@@ -1,4 +1,4 @@
-# 
+# Seguro WinRAR plantillas para Mac OS | Código abierto WinRAR plantillas para PC Windows. Con visualización de datos y eliminación de archivos temporales — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
